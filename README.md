@@ -1,4 +1,4 @@
-Privacy Policy for Quran Yutlaa
+Privacy Policy for Quran Yutla
 
 Last updated: September 27, 2026
 
